@@ -1,1 +1,0 @@
-# semanaomnistack10
